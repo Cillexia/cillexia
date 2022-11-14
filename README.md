@@ -2,6 +2,8 @@
 
 ![Banner@Cillexia#Logo#Banner#backgroundBLACK 5400×2270](https://user-images.githubusercontent.com/92103579/201706880-a49988a3-76ab-43ff-a05f-a46d18f356e3.png)
 
+Cillexia - Creative and Innovative - King of the Dragons - The Magic in You
+
 - // Ci Loding Information...
 - HELLO WE ARE @cillexia
 - We are One System, We are One Voice
